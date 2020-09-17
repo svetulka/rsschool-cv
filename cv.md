@@ -7,7 +7,7 @@
 *Phone:* +375447142824\
 *E-mail:* svetulkavrub@gmail.com\
 *GitHub:* @svetulka\
-*Skype:* s_v_e_t_u_l_k_a\
+*Skype:* s_v_e_t_u_l_k_a
 
 ## Education
 *University:* Belarusian National Technical University\
